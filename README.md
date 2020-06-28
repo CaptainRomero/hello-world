@@ -1,2 +1,3 @@
 # hello-world
 Fly in the ointment? Monkey in the wrench? 
+All in all we are all just brics in a wall. But I will keep on rambelin on none the less. Because communication breakdowns lead to the leavy breaking and then we have no place to stand. Not that it matters either. becuse vitural insanity is what we are living in......And its all right..... 
